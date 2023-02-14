@@ -15,3 +15,9 @@ En *1972*, alors que __Stephen King__ a 25 ans, il entreprend la rédaction de _
 ## Vie Privée
 
 __Stephen King__ vit avec sa femme __Tabitha__ qu'il a épousée le *2 janvier 1971* et avec laquelle il a eu trois enfants prénommés __Naomi__(née le *1er juin 1971*), __Joe__ (né le *4 juin 1972*) et __Owen__ (né le *21 février 1977*), les deux derniers étant également écrivains.
+
+## Style littéraire
+
+La principale qualité de __Stephen King__, reconnue même par ses détracteurs les plus acharnés, est son sens de la narration, son talent de conteur capable de captiver le lecteur à travers une histoire rendue très rapidement intéressante. Ses personnages vivants et colorés, qui prennent une identité bien définie en quelques phrases, et son aisance à susciter la frayeur en frappant l'imagination de ses lecteurs, font également partie de ses forces en tant qu'écrivain. Le réalisme de ses personnages et des situations qui les introduisent sont d'ailleurs un facteur déterminant dans sa réussite à faire accepter par ses lecteurs l'irruption de l'horreur.
+
+![misery](misery.jpg)
