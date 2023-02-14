@@ -11,3 +11,7 @@ Il publie son premier roman en __1974__ et devient rapidement célèbre pour ses
 En *1972*, alors que __Stephen King__ a 25 ans, il entreprend la rédaction de __Carrie__, l'histoire d'une adolescente souffre-douleur de ses camarades de classe qui développe un pouvoir de télékinésie, mais, doutant de la qualité de son récit, il jette les premières pages à la poubelle. __Tabitha__ les retrouve et, après les avoir lues, encourage son mari à persévérer dans sa tentativel. __King__ termine donc Carrie et expédie le manuscrit à la maison d'édition __Doubleday__.
 
 ![Stephen_King.jpeg](Stephen_King.jpg)
+
+## Vie Privée
+
+__Stephen King__ vit avec sa femme __Tabitha__ qu'il a épousée le *2 janvier 1971* et avec laquelle il a eu trois enfants prénommés __Naomi__(née le *1er juin 1971*), __Joe__ (né le *4 juin 1972*) et __Owen__ (né le *21 février 1977*), les deux derniers étant également écrivains.
